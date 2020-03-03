@@ -1,0 +1,2 @@
+# seiyuu-worshipper
+praise.
